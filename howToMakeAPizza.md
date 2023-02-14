@@ -23,3 +23,4 @@
 8. Ponerla otra vez en una superficie plana y estirarla con el rodillo
 9. Darle forma a la masa y ponerla en una bandeja
 10. Para la salsa juntar la pasta de tomate, 40 mililitros de agua, el aceite, ajo, sal y pimienta al gusto y las especies.
+
