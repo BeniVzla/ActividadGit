@@ -23,4 +23,8 @@
 8. Ponerla otra vez en una superficie plana y estirarla con el rodillo
 9. Darle forma a la masa y ponerla en una bandeja
 10. Para la salsa juntar la pasta de tomate, 40 mililitros de agua, el aceite, ajo, sal y pimienta al gusto y las especies.
+11. Ya que esta la masa, agregar la salsa y extenderla por toda la masa y arriba de la salsa agregar el queso.
+12. Agregar el peperoni arriba del queso.
+13. Meterla al horno por 14 minutos.
+14. **Servir en la mesa para comer.**
 
