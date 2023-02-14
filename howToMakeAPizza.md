@@ -10,3 +10,5 @@
 6. aceite de oliva
 7. sal
 8. ajo molido
+
+## Preparacion
